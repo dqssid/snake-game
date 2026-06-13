@@ -1,0 +1,1 @@
+Ini game sederhana yang mengingatkan saya akan masa kecil, di mana pada saat itu kebahagiaan terasa begitu mudah didapatkan. Tidak perlu grafis yang sangat realistis atau koneksi internet yang cepat. Cukup duduk di depan layar, berjuang memecahkan rekor tertinggi, dan buru-buru menyimpannya sebelum dipanggil ibu untuk makan malam WKWKWK
